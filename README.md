@@ -12,5 +12,8 @@
 <img width="960" height="540" alt="2025-10-23 23_31_31-" src="https://github.com/user-attachments/assets/7d3ac9ea-b0b7-4131-9c45-df95ab73148a" />
 
 
+https://github.com/user-attachments/assets/96f8b2d1-122b-4795-8c52-5ea184f916bd
+     
+         ╰─❯ ![Video in higher quality!](https://streamable.com/gzwuz6)
 
-![Texto descriptivo de la preview](https://github.com/user-attachments/assets/485ce47b-12e4-45ba-b751-1590cbcfe687)
+
