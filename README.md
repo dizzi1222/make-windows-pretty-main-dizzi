@@ -11,5 +11,6 @@
 
 <img width="960" height="540" alt="2025-10-23 23_31_31-" src="https://github.com/user-attachments/assets/7d3ac9ea-b0b7-4131-9c45-df95ab73148a" />
 
-https://streamable.com/gzwuz6
-<iframe src="https://streamable.com/e/gzwuz6" width="100%" height="100%" frameborder="0" allowfullscreen style="width:100%;height:100%;position:absolute;left:0px;top:0px;overflow:hidden;"></iframe></div>
+
+
+![Texto descriptivo de la preview](https://github.com/user-attachments/assets/485ce47b-12e4-45ba-b751-1590cbcfe687)
